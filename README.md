@@ -1,12 +1,12 @@
-- 👋 Hi, I’m @unravioli ! You can call me Tartar, Airy, Komasan, ( online names ) or Pooka ! ( jus a lil nickname ig :3 )
-- 👀 I’m currently interested in Dokuro-Chan, HTF, and DDLC, just to name a few !
+- 👋 Hi, I’m @unravioli ! 
+- 👀 I’m currently interested in Splatoon and Bob's Burgers, just to name a few !
 - 🌱 I’m currently learning Javascript !
 - 💞️ I’m looking to collaborate on small projects between friends, nothing much :D
 - 📫 How to reach me : i only give my phone # out to close friends !! other than that.. there aren't many options....
 - 😄 Pronouns: she/they/it !! ill pretty much accept any besides he/him
-- ⚡ Fun fact: me and my bestest friend morty host a ponytown lab rp server together ! it's called Alzayz Foundation, so look out for us !! xP
+- ⚡ Fun fact: it only takes two pounds of pressure to drive someone's nose into their brain! that's it! two pounds!!
 - videos i like !! ::
 - https://youtu.be/_GRLO0Larqw?si=sPcRLtvzY_PuzH-9 :: shitcore/speedcore playlist
-- https://www.youtube.com/watch?v=6hORO833T7Q :: dokuro-chan theme
+- https://www.youtube.com/watch?v=6hORO833T7Q :: dokuro-chan theme because its fire <33
 - https://www.youtube.com/watch?v=u_LWodDWPGQ&pp=ygUUdGhlIHF1ZXN0IGZvciBjaGVlc2U%3D :: im not dabbing, im looking at the floor for CHEESE, GROMIT !!
 - btw cringe culture is dead i ated it 😋
