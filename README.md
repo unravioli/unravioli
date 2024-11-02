@@ -6,7 +6,7 @@
 - DNI :: Homophobic, racist, sexist, all that stuff.. Trump supporters.... 🤮 
 - INT :: IHNMAIMS, plus whatever fandom i yap about im lazy writing this
 - THIN ICE :: agent 8 fictkins 😐.... uhhh !!!!! no comment !
-
+- OTHER :: PLEASE GO SUPPORT ARAB.ORG !!!
 
 
 *bsod : blue screen of death
