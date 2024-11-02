@@ -1,12 +1,13 @@
-- 👋 Hi, I’m @unravioli ! 
-- 👀 I’m currently interested in Splatoon and Bob's Burgers, just to name a few !
-- 🌱 I’m currently learning Javascript !
-- 💞️ I’m looking to collaborate on small projects between friends, nothing much :D
-- 📫 How to reach me : i only give my phone # out to close friends !! other than that.. there aren't many options....
-- 😄 Pronouns: she/they/it !! ill pretty much accept any besides he/him
-- ⚡ Fun fact: it only takes two pounds of pressure to drive someone's nose into their brain! that's it! two pounds!!
-- videos i like !! ::
-- https://youtu.be/_GRLO0Larqw?si=sPcRLtvzY_PuzH-9 :: shitcore/speedcore playlist
-- https://www.youtube.com/watch?v=6hORO833T7Q :: dokuro-chan theme because its fire <33
-- https://www.youtube.com/watch?v=u_LWodDWPGQ&pp=ygUUdGhlIHF1ZXN0IGZvciBjaGVlc2U%3D :: im not dabbing, im looking at the floor for CHEESE, GROMIT !!
-- btw cringe culture is dead i ated it 😋
+`` PRESENT DAY. . . PRESENT TIME! HAHAHAHAHA! ''
+
+- NAMES :: Tartar (pref), Marx, Komasan
+- FANDOMS :: OSC, IHNMAIMS, DHMIS, AVA (not AVM), SEL(getting into it)
+- INTERESTS :: MSI, music in general, art, ok this one might sound weird but i rlly like videos of like *bsod/**rsod and like those tvs switching to digital its just rlly cool !!!
+- DNI :: Homophobic, racist, sexist, all that stuff.. Trump supporters.... 🤮 
+- INT :: IHNMAIMS, plus whatever fandom i yap about im lazy writing this
+- THIN ICE :: agent 8 fictkins 😐.... uhhh !!!!! no comment !
+
+
+
+*bsod : blue screen of death
+**rsod : red screen of death
