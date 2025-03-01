@@ -1,6 +1,6 @@
 `` PRESENT DAY. . . PRESENT TIME! HAHAHAHAHA! ''
 
-- NAMES :: Tartar , Kratcy , Drakobloxxer
+- NAMES :: Alyx , Benrey , Tartar ,  other kin names
 - FANDOMS :: OSC, IHNMAIMS, DHMIS, SEL + MORE !!
 - INTERESTS :: MSI, music in general, art, ok this one might sound weird but i rlly like videos of like *bsod/**rsod and like those tvs switching to digital its just rlly cool !!!
 - DNI :: Homophobic, racist, sexist, all that stuff.. Trump supporters.... 🤮 
